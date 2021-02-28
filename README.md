@@ -1,2 +1,1 @@
-# rsschool-cv
-https://Valeri-dragon.github.io/rsschool-cv/cv
+# rsschool-cvhttps://Valeri-dragon.github.io/rsschool-cv/index.html
