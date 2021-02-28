@@ -1,1 +1,1 @@
-https://Valeri-dragon.github.io/rsschool-cv/index.html
+https://Valeri-dragon.github.io/rsschool-cv/
